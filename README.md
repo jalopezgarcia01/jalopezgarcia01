@@ -34,4 +34,4 @@ I am passionate about learning new things that are from my area in chemistry to 
 [![GitHub: Jesús López](https://img.shields.io/github/followers/jalopezgarcia01?label=jalopezgarcia01&style=social)](https://github.com/jalopezgarcia01)
 
 
-⭐️ From [Mohitp98](https://github.com/Mohitp98)
+
